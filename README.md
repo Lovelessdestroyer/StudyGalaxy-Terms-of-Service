@@ -1,1 +1,1 @@
-# StudyGalaxy-Terms-of-Service
+# StudyGalaxy-Terms-&-privacy policy
